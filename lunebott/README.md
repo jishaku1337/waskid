@@ -1,1 +1,2 @@
-omg guys >_<
+# lune
+> leaked by me (`jishaku`)
